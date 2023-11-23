@@ -1,1 +1,0 @@
-hard working people
